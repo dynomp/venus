@@ -6,7 +6,7 @@
 LIFETIME Access Key = $40 **SALE!**
 
  
-<h1 align="center">Neptune Multi Tool 🛠️ </h1>
+<h1 align="center">⛏️ Venus Multi Tool Beamer ⛏️ </h1>
 <p align="center">
   <a href="https://github.com/Rdmo1/DisRo-Multi-Tool/blob/main/LICENSE">
     <img src="https://img.shields.io/badge/License-MIT-important">
@@ -28,27 +28,18 @@ LIFETIME Access Key = $40 **SALE!**
 <p align="center">
 
 ```  
- 📨 Social
+ 📨 Contact Me:
  
-  Discord:Rdmo1#8396
-  Telegram: t.me/@rdmo12
-  (Discord is UP now!)
-  Buyers Review: https://t.me/rdmovouch
-  
-  Add me on discord to get price info
+  Discord: dynomp#0542
+  Vouch Discord Server!
+  Here: https://discord.gg/XhJFfmf8
+  **DM Me On Discord To buy!**
 
-🔍 Information
+🔍 Info
 
    The KEY only work on 1 device.
-   only buyer can access the real file
-   cannot be cracked nor reverse the neptune tool
-   
-            ( DO NOT TRUST RE-SELLER )
- 
-   The KEY are control by ngrok server tunnel
-   i can add time, reduce time, & remove tool access
-   Many people complaining to me that they got scammed for buying the tool/key LMAO ( what dumb kid fr )
-   don't whine to me if you got scammed lmfao
+   only buyer can access the file
+   Venus IS NOT crackable.
  
 ```
 </p>
