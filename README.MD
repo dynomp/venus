@@ -10,13 +10,12 @@
   Vouch Discord Server!
   Here: https://discord.gg/XhJFfmf8
   **DM Me On Discord For Prices & To buy!**
+____________________________________________________________________
 
 🔍 Info
 
-   Your Access Key will only work on once device.
-   Only The Purchaser can use Venus.
-   Venus IS NOT crackable.
- 
+   Your Access Key will only work on one PC.
+   Only The Purchaser can use Venus. 
 ```
 </p>
 
